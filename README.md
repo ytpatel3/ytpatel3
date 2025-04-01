@@ -1,9 +1,7 @@
 ## Hi, my name is Yash. 
 
 ### LinkedIn: <https://www.linkedin.com/in/yash-patel-669554238/>
-### I am currently working as a Data Analyst Intern at the New York Mets. ![image.png](https://loodibee.com/wp-content/uploads/mlb-new-york-mets-logo.png)
-
-### For professional inquiries, contact me at ytpatel17@gmail.com
+### For professional inquiries, contact me at ytpatel17@gmail.com.
 
 
 
