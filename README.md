@@ -1,7 +1,7 @@
-## Hi, I'm Yash. Thanks for stopping by!
+## Hey, I'm Yash. Thanks for stopping by!
 
-### LinkedIn: <https://www.linkedin.com/in/yash-patel-669554238/>
-### For professional inquiries, contact me at ytpatel17@gmail.com.
+#### LinkedIn: <https://www.linkedin.com/in/yash-patel-669554238/>
+#### For professional inquiries, contact me at ytpatel17@gmail.com.
 
 
 
